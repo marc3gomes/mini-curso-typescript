@@ -21,3 +21,4 @@
 
 ### Curso:
 [Link do Curso](https://www.youtube.com/playlist?list=PLlAbYrWSYTiPanrzauGa7vMuve7_vnXG_)
+[Willian Justen](https://willianjusten.com.br/)
